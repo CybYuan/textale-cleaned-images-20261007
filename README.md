@@ -1,0 +1,1 @@
+# TexTale cleaned product images
